@@ -1,5 +1,6 @@
-## Hi there 👋
+## 杏耀平台最新网址入口 👋
 
+<https://xingyaopt.github.io>
 <!--
 **xingyaopt/xingyaopt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
